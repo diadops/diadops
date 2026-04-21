@@ -1,4 +1,5 @@
-<a href="https://zwm8604.tumblr.com/?source=share">© art credit</a> ‎ ‎    ꒰ˆമ ˕ മˆ꒱ ‎ ～‎ ![Views Counter](https://views-counter.vercel.app/badge?pageId=gyjos&leftColor=ffffff&rightColor=000000&type=total&label=jockeys&style=lower)  ᭄
+used to be @/Gyjos! don't forget me Ok..<br> 
+<a href="https://zwm8604.tumblr.com/?source=share">© art credit</a> ‎ ‎    ꒰ˆമ ˕ മˆ꒱ ‎ ～‎ ![Views Counter](https://views-counter.vercel.app/badge?pageId=diadops&leftColor=ffffff&rightColor=000000&type=total&label=jockeys&style=lower)  ᭄
 <div align="center"> 
                                                       
 
