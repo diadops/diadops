@@ -5,7 +5,7 @@ used to be @/Gyjos! don't forget me Ok..<br>
 
 <img width="45%" src="https://i.postimg.cc/c4qRVSy0/Tumblr_l_31118534615009.png"><br>      
 
-***DNC***, skin style changes very often~ I may be awkward and shy, but please feel free to sit & ‎interact with me. I have no dni! (#PoorSleep/#MoodSwings Freak)
+***DNC***, skin style changes very often~ I may be awkward and shy, but please feel free to sit & ‎interact with me. basic dni! (#PoorSleep/#MoodSwings Freak)
 
 
 ‎  ‎ ‎!! ‎ <a href="https://rentry.co/gyjos">my rentry for more info</a> 🐴 !! 
