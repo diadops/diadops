@@ -6,7 +6,7 @@
 
 <p align="center"
 
-[RENTRY](https://rentry.co/doppios) ‧ [STRAWPAGE](https://wip.straw.page) ‧ [ATABOOK](https://wip.atabook.org/)
+[TXTO](https://txto.eu.org/edea) ‧ [STRAWPAGE](https://diadops.straw.page) ‧ [ATABOOK](https://wip.atabook.org/)
 </p>
 
 <p align="center">
